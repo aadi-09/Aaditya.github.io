@@ -1,2 +1,2 @@
-# Ishan7390.github.io
+# Aaditya.github.io
 Portfolio Website
